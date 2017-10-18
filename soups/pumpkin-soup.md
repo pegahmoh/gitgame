@@ -11,6 +11,7 @@
 - 1 clove garlic, minced
 - 1/2 cup heavy whipping cream
 - 5 whole black peppercorns 
+- Dont forget a spoon
 
 ## Preparation
 

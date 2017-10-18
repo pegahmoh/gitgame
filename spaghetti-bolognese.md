@@ -8,6 +8,7 @@ This dish can be combined with tomato soup and bread for an excellent and tasty 
 
 - 1 tbsp olive oil
 - 4 rashers smoked streaky bacon, finely chopped
+- CAN I HAVE SOME FRIES WITH THAT ???
 - 2 medium onions
 - 2 carrots
 - 2 celery sticks, finely chopped
