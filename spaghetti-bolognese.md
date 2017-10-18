@@ -6,6 +6,7 @@ This dish can be combined with tomato soup and bread for an excellent and tasty 
 
 ## Ingredients
 
+-BIIIIG MEATBALLS
 - 1 tbsp olive oil
 - 4 rashers smoked streaky bacon, finely chopped
 - 2 medium onions
